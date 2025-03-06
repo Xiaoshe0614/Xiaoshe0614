@@ -5,6 +5,7 @@
 - 📫 How to reach me 1210199753@qq.com or xiaoshe0614@sjtu.edu.cn
 - 😄 Pronouns: He & him
 - ⚡ Fun fact: Mathematics is the foundation of natural science and also the most precious intellectual wealth of mankind.
+- R    My Researchgate: https://www.researchgate.net/profile/Shuhao-Kang-3
 
 <!---
 Xiaoshe0614/Xiaoshe0614 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
